@@ -1,1 +1,0 @@
-# Discord-GHOST-BOT-Status-Remover-By-REDX
